@@ -1,4 +1,4 @@
-**Ian Rosen**
+# Ian Rosen
 
 **Education**
 
