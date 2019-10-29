@@ -1,4 +1,10 @@
-# Professional Resume: Ian Rosen
+**Ian Rosen**
+
+**Education**
+
+** **** Lehigh University** — (August 2019 — May 2023)
+
+- College of Business and Economics
 
 **Work Experiences:**
 
