@@ -1,5 +1,4 @@
-#Ian Rosen
-# Professional Resume
+# Professional Resume: Ian Rosen
 
 842 Standish Avenue • Westfield, New Jersey 07090
 
